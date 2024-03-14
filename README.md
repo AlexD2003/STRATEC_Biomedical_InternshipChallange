@@ -1,0 +1,1 @@
+# STRATEC_Biomedical_InternshipChallange
